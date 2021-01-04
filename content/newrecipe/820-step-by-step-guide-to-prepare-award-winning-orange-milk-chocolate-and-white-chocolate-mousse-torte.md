@@ -1,0 +1,113 @@
+---
+description: "Step-by-Step Guide to Prepare Award-winning Orange Milk Chocolate and White Chocolate Mousse Torte"
+title: "Step-by-Step Guide to Prepare Award-winning Orange Milk Chocolate and White Chocolate Mousse Torte"
+slug: 820-step-by-step-guide-to-prepare-award-winning-orange-milk-chocolate-and-white-chocolate-mousse-torte
+date: 2020-09-23T08:18:57.305Z
+image: https://img-global.cpcdn.com/recipes/7b796424d4cdbb92/751x532cq70/orange-milk-chocolate-and-white-chocolate-mousse-torte-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/7b796424d4cdbb92/751x532cq70/orange-milk-chocolate-and-white-chocolate-mousse-torte-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/7b796424d4cdbb92/751x532cq70/orange-milk-chocolate-and-white-chocolate-mousse-torte-recipe-main-photo.jpg
+author: Clyde Maldonado
+ratingvalue: 3.9
+reviewcount: 10
+recipeingredient:
+- " Lindt Swiss milk chocolate Orange filled bars broken up"
+- " heavy whipping cream"
+- " pure orange extract"
+- " white chocolate not chips broken up"
+- " heavy whipping cream"
+- " vanilla extract"
+- " oreo cookies crushed to fine crumbs"
+recipeinstructions:
+- "Line a 5 by 8 inch loaf pan with plastic wrap"
+- "Have white chocolate in a large bowl. Heat the 1 1/4 cup cream until hot but not boiling, pour over white chocolate, add vanilla, let sit 1 minute and then stir smooth. Cool to room temperature ten cover and refrigerate until very cold, at least 4 hours or overnight"
+- "Do the same with the orange milk chocolate. Have it in a large bowl. Heat the 2 cups of cream until hot but not boiling. Pour cream over chocolate, add orange extract. Cool to room temperature then cover and refrigerate at least 4 hours or overnight"
+- "Whip Chocolate Creams"
+- "Beat orange milk chocolate cream just until light and fluffy"
+- ""
+- "Beat white chocolate cream just unti light and fluffy"
+- ""
+- "Assemble Torte"
+- "Smooth 1/2 of chocolate Orange cream into bottom of prepared pan"
+- "Sprinkle 1/3 of the oreo crumbs on top of layer"
+- "Cover these crumbs with the remaing chocolate orange cream"
+- "Cover the crumbs with the White chocolaye cream"
+- "Sprinkle 1/3 of the oreo crumbs on white chocolate layer"
+- "Add remaining crumbs and gently press to have them stick. This will become the bottom when removed from pan"
+- "Cover completely and freeze to set at least 8 hours or overnight"
+- "To remove from pan. Loosten plastic wrap. Place a serving pann on surface of pan and invert to realease torte. Carefully peel off plastic wrap"
+- "Garnish with white chocolate and dark shaving"
+- "Slice and serve with whipped cream. Store in the freezer but slice a each sluce as you need it but let it thaw in the refigerator or sit at room temperature until thawed but still cold, about 10 minutes"
+- ""
+categories:
+- Recipe
+tags:
+- orange
+- milk
+- chocolate
+
+katakunci: orange milk chocolate 
+nutrition: 169 calories
+recipecuisine: American
+preptime: "PT32M"
+cooktime: "PT55M"
+recipeyield: "1"
+recipecategory: Dessert
+
+---
+
+
+![Orange Milk Chocolate and White Chocolate Mousse Torte](https://img-global.cpcdn.com/recipes/7b796424d4cdbb92/751x532cq70/orange-milk-chocolate-and-white-chocolate-mousse-torte-recipe-main-photo.jpg)
+
+Hey everyone, hope you're having an incredible day today. Today, I'm gonna show you how to make a distinctive dish, orange milk chocolate and white chocolate mousse torte. One of my favorites food recipes. This time, I am going to make it a little bit unique. This will be really delicious.
+
+Orange Milk Chocolate and White Chocolate Mousse Torte is one of the most well liked of current trending meals on earth. It is easy, it is quick, it tastes delicious. It's enjoyed by millions every day. They are fine and they look wonderful. Orange Milk Chocolate and White Chocolate Mousse Torte is something that I have loved my whole life.
+
+A delicious chocolate dessert to impress family and friends with fresh oranges and white chocolate. Melt the milk chocolate over simmering water and brush the inside of the pastry cases with chocolate. To make the mousse, beat the eggs, egg yolks, sugar and rum over.
+
+
+To get started with this recipe, we must prepare a few components. You can cook orange milk chocolate and white chocolate mousse torte using 7 ingredients and 20 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Orange Milk Chocolate and White Chocolate Mousse Torte:
+
+1. Prepare  Lindt Swiss milk chocolate Orange filled bars, broken up
+1. Get  heavy whipping cream
+1. Take  pure orange extract
+1. Take  white chocolate, not chips, broken up
+1. Make ready  heavy whipping cream
+1. Make ready  vanilla extract
+1. Make ready  oreo cookies crushed to fine crumbs
+
+
+Add the condensed milk and stir to combine. Pour the mixture over the white chocolate and using a stick blender and blend until smooth. White Chocolate Torte - A creamy, decadent white chocolate torte with a gingernut biscuit crumb base, and garnished with fresh raspberries and chocolate chips! As a kid, I would always reach for it more often than milk chocolate. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Orange Milk Chocolate and White Chocolate Mousse Torte:
+
+1. Line a 5 by 8 inch loaf pan with plastic wrap
+1. Have white chocolate in a large bowl. Heat the 1 1/4 cup cream until hot but not boiling, pour over white chocolate, add vanilla, let sit 1 minute and then stir smooth. Cool to room temperature ten cover and refrigerate until very cold, at least 4 hours or overnight
+1. Do the same with the orange milk chocolate. Have it in a large bowl. Heat the 2 cups of cream until hot but not boiling. Pour cream over chocolate, add orange extract. Cool to room temperature then cover and refrigerate at least 4 hours or overnight
+1. Whip Chocolate Creams
+1. Beat orange milk chocolate cream just until light and fluffy
+1. 
+1. Beat white chocolate cream just unti light and fluffy
+1. 
+1. Assemble Torte
+1. Smooth 1/2 of chocolate Orange cream into bottom of prepared pan
+1. Sprinkle 1/3 of the oreo crumbs on top of layer
+1. Cover these crumbs with the remaing chocolate orange cream
+1. Cover the crumbs with the White chocolaye cream
+1. Sprinkle 1/3 of the oreo crumbs on white chocolate layer
+1. Add remaining crumbs and gently press to have them stick. This will become the bottom when removed from pan
+1. Cover completely and freeze to set at least 8 hours or overnight
+1. To remove from pan. Loosten plastic wrap. Place a serving pann on surface of pan and invert to realease torte. Carefully peel off plastic wrap
+1. Garnish with white chocolate and dark shaving
+1. Slice and serve with whipped cream. Store in the freezer but slice a each sluce as you need it but let it thaw in the refigerator or sit at room temperature until thawed but still cold, about 10 minutes
+1. 
+
+
+Milk Chocolate and Orange Mousse Cakes. Back to Milk Chocolate and Orange Mousse Cakes. The no-bake white chocolate mousse filling is made with Greek yoghurt for a light and refreshing flavour. Topped with morello cherry preserves, this is a stunning torte that is deceptively simple to make! It begins with a big batch of chocolate mousse, half of which is baked in a pie plate. 
+
+So that is going to wrap this up for this special food orange milk chocolate and white chocolate mousse torte recipe. Thanks so much for reading. I'm sure you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
